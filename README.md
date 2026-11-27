@@ -20,7 +20,7 @@
       $\color{#437257}{\textsf{doing hw/studying}}$ <br>
       $\color{#558564}{\textsf{⤥ DNI ⤦}}$ <br>
       $\color{#437257}{\textsf{toxic famous dni}}$ <br>
-       _ _ _
+
 <br><br>
 <table width="70%">
 <tr>
