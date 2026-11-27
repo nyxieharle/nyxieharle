@@ -1,9 +1,7 @@
 #coming soon
-
-
-
-
-<img width="564" height="564" alt="Tumblr_l_1771658088646675" src="https://github.com/user-attachments/assets/2bbd4de2-d260-4e4d-96f9-dab895b1adfd" />
+<table>
+  </tr>
+    <th>
       $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
       $\color{#ffd5e3}{\textsf{ᨶ႒ᩚnyx🎀}}$ <br>
       $\color{#ffe4ef}{\textsf{𝘚𝘩𝘦/𝘏𝘦𝘳}}$ <br>
