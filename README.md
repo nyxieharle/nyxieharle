@@ -26,7 +26,7 @@
 <tr>
 <td align="center" height="30">
 <details>
-<img width="20" height="20" alt="Tumblr_l_1816057123045475" src="https://github.com/user-attachments/assets/fb6e89ed-4342-429d-af70-abf553ca8b59" />
+<img width="85" height="85" alt="Tumblr_l_1816057123045475" src="https://github.com/user-attachments/assets/fb6e89ed-4342-429d-af70-abf553ca8b59" />
 
 <summary>oomfs</summary>
 <div align="center">
