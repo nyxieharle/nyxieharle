@@ -13,5 +13,5 @@
       $\color{#70976D}{\textsf{BASIC DNI CRITERIA.}}$ <br>
       $\color{#437257}{\textsf{Dnc/inspo my skin pls and TYSM <3}}$ <br>
       $\color{#303030}{\textsf{WORK/SCHOOL AND}}$ <br>
-      $\color{#558564}{\textsf{⤥ DNI ⤦}} <br>
+      $\color{#558564}{\textsf{⤥ DNI ⤦}}$ <br>
       $\color{#437257}{\textsf{toxic famous dni}}$ <br>
