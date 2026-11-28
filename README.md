@@ -12,6 +12,7 @@
       $\color{#437257}{\textsf{harle fictkin/kin}}$ <br>
       $\color{#70976D}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
+       <img width="300" height="300" alt="5bbb7b9aeec246cce6f2c7a80d46b928" src="https://github.com/user-attachments/assets/2549a76a-b696-4288-9711-ee31b94bcdb2" />
       $\color{#303030}{\textsf{PEOPLE WHO SHIPS}}$ <br>
       $\color{#558564}{\textsf{mizisau,greenapple,funnybunny,frogdoll, Tvteeth,ivantill}}$ <br>
       $\color{#70976D}{\textsf{BASIC DNI CRITERIA.}}$ <br>
