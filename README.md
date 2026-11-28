@@ -17,7 +17,7 @@
       $\color{#558564}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
 
 
-[**PRONOUNS.CCএ**](https://pronouns.cc/@Nyxmeow) 
+[**PRONOUNS.CCএ**](https://pronouns.cc/@Harleeeee) 
       $\color{#303030}{\textsf{PEOPLE WHO SHIPS}}$ <br>
       $\color{#558564}{\textsf{mizisua,piebina,harlebina,funnybunny,frogdoll,Tvteeth,haushiki}}$ <br>
       $\color{#70976D}{\textsf{BASIC DNI CRITERIA.}}$ <br>
