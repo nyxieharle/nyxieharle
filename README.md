@@ -1,6 +1,7 @@
 #hehe
 
-
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=70976D&center=true&vCenter=true&width=1200&lines=HAHAHAHAHAHAHAHA?!..." />
 <img width="700" height="169" alt="Untitled84_20261126173423" src="https://github.com/user-attachments/assets/4f58c912-9cf1-4311-9758-391b9b3cceaa" />
 
 <table>
@@ -38,3 +39,5 @@ pie/cy ,  blay , alyssa , abel  ,  Alex, knox|
 </td>
 </tr>
 </table>
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=70976D&center=true&vCenter=true&width=1200&lines=why+dont+you+be+my+pet?..." />
